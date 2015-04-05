@@ -1,2 +1,2 @@
 Programming Background
-Hobbies:Eat Sleep Movie Ski.
+Hobbies:Eat Sleep Movie Ski ; Drawing traveling and others
